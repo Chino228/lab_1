@@ -1,2 +1,2 @@
-# lab_1
-laba
+edited by Smolyakov
+:)
